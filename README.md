@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ridgeso
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning python and i am more and more intressted in low level programing
+- 💞️ i'll be glad if you point me my mistakes and bad behaviours
+- 📫 Just send me a message some how xD
